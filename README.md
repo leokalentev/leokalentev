@@ -47,7 +47,7 @@ I'm Leo Kalentev, a passionate and driven individual on the path to becoming a s
 ---
 
 ### **📫 How to Reach Me**
-- Email: [your-email@example.com](mailto:leonigleo13@gmail.com)
+- Email: [leonigleo13@gmail.com](mailto:leonigleo13@gmail.com)
 
 ---
 
